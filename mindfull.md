@@ -1,4 +1,4 @@
-# Mindfull 
+# Mindfull 😺
 ## SUN MOON
 ### Paths
 #### Here self shall be sharing on How To Live in peaceful state
@@ -14,3 +14,17 @@ Do daily yoga at least 10 min <br/>
 Else do any excersise as per your comfort<br/>
 Else Do atleast meditation 10 min<br/> Meditation is just watching your mind , watching your thoghts, Lot of Thoughts Lot of Distrubance will arise <br/>
 in mind do nothing YES just simply watch the mind like security without controlling<br/>Actually you cant controll too<br/>
+
+### SUN Gazing
+❗When To Watch Sun <br/>
+❗Check Sunrice and sunsetting Time in your area in internet<br/>
+❗Watch sun daily 10 min Just watch <br/> 
+❗Then watch Just 10min after sunrise and 10min Before Sunset<br/>
+😄 If sun coverd by cloud or you have not waken up or evening you may be in travel Dont worry Sun will Come Daily ❗<br/>
+❗Main Idea is watch sun only 10min that too sunrise and sunset timings not other time its very ✖️ dangerous to watch (gazing) during day<br/>
+❗watching few times few sec during day is differrent from Gaing (Watching focusing continually on sun) Thats why timing is important<br/>
+
+### Moon Gazing
+😅 No timing Just moon has to come you should have free timing<br/>
+Watch 10 min or even more no harm<br/> 
+Only check your sroundings<br/>
